@@ -1,7 +1,1 @@
-Hi there 👋
-currently learning: Python,C++,C#
-
--------------------WILL UPDATE-------------------
-Python - ? experience
-C++ - ? experience
-C# - ? expirence
+https://tinyurl.com/4h3z2rx7
